@@ -4,4 +4,4 @@ cambios extras
 
 cambios de ultimo momento :D
 
-espero que no tenga problemas cambiar esto :D
+va a causar problemas 
