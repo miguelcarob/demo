@@ -4,4 +4,4 @@ cambios extras
 
 cambios de ultimo momento :D
 
-va a causar problemas 
+algo esta pasando en el stash
